@@ -1,6 +1,7 @@
 # the-fucking-human-being-manifesto
 This is the fucking human being manifesto
 
+0Act. Read the fucking manifesto only if you aim to become a fucking human being.
 
 1Act. Be a fucking human being and do not hurt other fucking human beings. If you hurt other fucking human beings, you are a fucking animal and not a fucking human being.
 
